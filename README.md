@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kuntal1987
 - 👀 I’m interested in Cosmology, Particle Physics, Astrophysics, Cryptocurrencies, Blockchain Projects and much more.
-- 🌱 I’m currently learning on
+- 🌱 I’m currently learning on Physics, Programming Languages and how to capitalize in Blockchain Projects.
 - 💞️ I’m looking to collaborate on various ongoing Blockchain Projects.
 - 📫 How to reach me. - My Email Address:- "exploretoknow@gmail.com" and "kuntalkumarghosh@yahoo.co.in". My Phone Number:- +91-9836639194
 
